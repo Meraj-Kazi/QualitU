@@ -7,5 +7,5 @@ I told my friends who were also my classmates to come and join me as a team and 
 
 ## ]
 
-We made this project for educational sectors of our country. Specially for teachers to improve their skills and teaching style. 
+We made this project for educational sectors of our country. Specially for teachers to improve their skills and teaching style.
 
